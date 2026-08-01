@@ -1,9 +1,9 @@
-## 👋 Hi, I'm @H2CO3w
+## I'm @H2CO3w
 
-🧪 Chemistry | 💻 Computer Science | ⚙️ MC Create Mod | 🎴 Touhou Project
+ Chemistry |  Computer Science |  MC Create Mod |  Touhou Project
 
 
-### 📫 Reach me
+## Reach me
 
 - Email: coh4@outlook.com
 
