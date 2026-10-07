@@ -5,7 +5,7 @@
 
 ## How to contact me
 
-You can reach me via email at coh4@outlook.com, or visit my blog.
+- You can reach me via email at coh4@outlook.com, or visit my blog.
 ---
  
 
