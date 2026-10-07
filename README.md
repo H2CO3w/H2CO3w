@@ -3,10 +3,9 @@
  Chemistry |  Computer Science |  MC Create Mod |  Touhou Project
 
 
-## Reach me
+## How to contact me
 
-- Email: coh4@outlook.com
-
+You can reach me via email at coh4@outlook.com, or visit my blog.
 ---
  
 
